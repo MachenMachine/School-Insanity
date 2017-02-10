@@ -1,2 +1,2 @@
 # School-Insanity
-it is fune to learn but sometimes painful.
+it is fun to learn but can be difficult at times.
